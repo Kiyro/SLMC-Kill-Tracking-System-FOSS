@@ -1,6 +1,6 @@
 # SLMC-Kill-Tracking-System-FOSS
 
-hey bros dont you think its kind of gay how everyone's asshole puckers the second you're in a sim?
+hey bros dont you think its kind of gay (i am incredibly gay its my word i can say it) how everyone's asshole puckers the second you're in a sim?
 tired of all the secrets and other shit that led to the SLMC's current stagnation?
 
 neat bro, me too. let's kiss.
